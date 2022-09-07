@@ -9,7 +9,7 @@
 - **Phone/Telegram:** +375(33)3533523
 - **GitHub:** https://github.com/dmitrysidorhik 
 - **E-mail:** dmitrysidorhik@gmail.com
-
+ 
 ********* 
 
 ### **About me:**
